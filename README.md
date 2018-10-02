@@ -1,7 +1,7 @@
 # KANISHK VIJAYWARGIYA
 
 
-This is the assets and various logos design for both android and ios applications. In nearby I will be uploading free assets and new designs for websites, as well.
+This is the assets and various logos design for both android and ios applications. In nearby future I will be uploading free assets and new designs for websites, as well.
 
 
 
